@@ -44,3 +44,14 @@ Terdiri dari file:
 
 https://github.com/diendasls/LP9DPBO2023C2/assets/101309423/72315142-3bc2-4362-a397-e55682f0bde1
 
+## database
+
+![image](https://github.com/diendasls/LP9DPBO2023C2/assets/101309423/7c7faa96-d255-4ee1-a0ca-b1252cf04d6b)
+
+
+![image](https://github.com/diendasls/LP9DPBO2023C2/assets/101309423/4a1730da-1973-41d6-ba07-9aacce630e7b)
+
+
+
+
+
